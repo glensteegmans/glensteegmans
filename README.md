@@ -8,4 +8,4 @@ I am a student graduating in AI & Robotics @ PXL University of Applied Arts and 
 - 💬 Ask me about music 🎸🎵
 - 📫 How to reach me: https://www.linkedin.com/in/glen-steegmans-00a178207/
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: It wouldn't be uncommen to meet me in various countries ✈️
+- ⚡ Fun fact: It wouldn't be uncommon to meet me in various countries ✈️
